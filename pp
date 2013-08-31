@@ -1,1 +1,1 @@
-my name is vickyWang.
+my name is Vicky.
